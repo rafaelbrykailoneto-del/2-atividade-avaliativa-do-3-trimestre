@@ -1,1 +1,1 @@
-# 2-atividade-avaliativa-do-3-ntrimestre
+# 2-atividade-avaliativa-do-3-trimestre
